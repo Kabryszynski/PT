@@ -1,0 +1,1 @@
+# Przedsiebiorczosc technologiczna
